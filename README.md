@@ -5,4 +5,4 @@ I have 32 Years old, I'm married and I have 2 boys. My education it's of Technic
 Today I'm Studiyng a Graduation in Technology of Computer Networking. Cursing 2 of 6 semester.
 
 ### Linkedln
-[Linkedln](www.linkedin.com/in/wellington-guiotti)
+[Linkedln](www.linkedin.com/in/wellington-guiotti/)
